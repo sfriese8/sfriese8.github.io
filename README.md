@@ -1,1 +1,1 @@
-My Favorite Destinations! Woohoo
+My Favorite Destinations! 
