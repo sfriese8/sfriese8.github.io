@@ -1,1 +1,1 @@
-Favorite Destinations!
+My Favorite Destinations!
